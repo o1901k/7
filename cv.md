@@ -8,7 +8,7 @@
 
 **Telegram:** @kristina_oleshchuk
 
-[Linkedin](https://www.linkedin.com/in/kristina-oleshchuk-3a400621a)
+[Linkedin](https://www.linkedin.com/in/kristina-oleshchuk)
 ***
 ### About me:
 
