@@ -18,8 +18,8 @@ I am reliable and trustworthy and often look for new responsibilities in a wide 
 ### Skills and Proficiency:
 
 * HTML5, CSS3
-* JavaScript (Basic)
-* Git
+* JavaScript (basic)
+* Git (basic)
 ***
 ### Code example:
 ```
